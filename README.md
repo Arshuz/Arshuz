@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Arshuz
+- 👀 I’m interested in CYBERSECURITY
+- 🌱 I’m currently learning B.E. COMPUTER SCIENCE ENGINEERING
+- 😄 Pronouns: PAIN IS GAIN
+- ⚡ Fun fact: WINDOWS OS IS NOT EVERYTHING
