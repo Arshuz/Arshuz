@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Arshuz
+- 👋 Hi, I’m [Arshuz](https://github.com/Arshuz)
 - 👀 I’m interested in CYBERSECURITY
 - 🌱 I’m currently learning B.E. COMPUTER SCIENCE ENGINEERING
 - 😄 Pronouns: PAIN IS GAIN
